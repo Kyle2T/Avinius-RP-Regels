@@ -2,7 +2,7 @@
 
 ◦ <b>Agressief Benaderen</b> ➥ Het agressief benaderen van Politie, KMar, Ambulance en ANWB is niet toegestaan. Blijf ten alle tijde vriendelijk.
 
-◦ <b>Overheidsvoertuigen</b> ➥ Het stelen van overheidsvoertuigen is niet toegestaan. Hieronder vallen de voertuigen van de Politie, Kmar, Ambulance, ANWB en Rijkswaterstaat.
+◦ <b>Overheidsvoertuigen</b> ➥ Het stelen van overheidsvoertuigen is niet toegestaan. Hieronder vallen de voertuigen van de Politie, Kmar, Ambulance en ANWB.
 
 ◦ <b>Cop Baiten</b> ➥ Het uitlokken van politie/kMar is niet toegestaan. Dit is bijvoorbeeld door heel hard langs hun te rijden.
 
