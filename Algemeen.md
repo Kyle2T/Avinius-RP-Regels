@@ -16,7 +16,7 @@
 
 ◦ <b>Racisme</b> ➥ Racisme om ras, huidskleur, religie etc is niet toegestaan. Het vals beschuldigen van racisme is ook niet toegestaan. 
 
-◦ <b>Vluchten Voor Politie en/of Kmar</b> ➥ Als je vlucht voor politie/kmar moet je altijd een geldige reden hebben. Bij een staande houding mag de politie/kmar je niet zomaar    fouilleren. Als je vlucht mogen ze dat natuurlijk wel doen.
+◦ <b>Vluchten Voor Politie en/of KMar</b> ➥ Als je vlucht voor politie/kmar moet je altijd een geldige reden hebben. Bij een staande houding mag de politie/kmar je niet zomaar    fouilleren. Als je vlucht mogen ze dat natuurlijk wel doen.
 
 ◦ <b>Nieuwe Spelers</b> ➥ Ze zijn net nieuw in de stad. Laat hun eerst rustig de stad verkennen dus ontvoer ze niet gelijk etc.
 
