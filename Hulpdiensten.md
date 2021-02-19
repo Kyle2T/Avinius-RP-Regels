@@ -28,4 +28,4 @@
 
 ◦ <b>Collega's Oproepen</b> ➥ Het oproepen van collega's via discord omdat er bijvoorbeeld een overval is valt ondet "Metagamen".
 
-© 2021 Noorderveen
+© 2021 Noorderveen.
